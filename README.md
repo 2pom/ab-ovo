@@ -1,4 +1,4 @@
-# början på detta
+# usque ad malo
 Även en tuvsenmilaresa börjar med ett enda steg.
 Det viktigaste när man börjar skriva är att ignorera skrivkrampen. Skriv om vad som helst.
 Berätta om din frukost. Skriv varför du skriver.
